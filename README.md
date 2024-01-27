@@ -1,0 +1,2 @@
+# safeco
+pussh sampai bodoh
